@@ -1,1 +1,1 @@
-https://jalynkyrgyz.github.io/book-list-remove/index.html
+https://jalynkyrgyz.github.io/book-list-remove/inbox.html
